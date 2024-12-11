@@ -1,12 +1,12 @@
-# Zesty Bites | Zesty Moments, Bite-Sized Joy. Social Media Campaign Landing Page
+# Ethereal Attire | Elegant Fashion for Every Moment Socail Media Campaign  Social Media Campaign Landing Page
 <a href="https://www.linkedin.com/in/dharmendraverma95/" target="_blank">LinkedIn Profile </a>
 
 <a href="https://www.behance.net/dhirukumar" target="_blank">Behance Profile </a>
 
-##Zesty Bites | Zesty Moments, Bite-Sized Joy. Social Media Campaign Landing Page, Zesty Moments Stories Campaign Sign Up NoW and get 10% DISCOUNT on your FRIST Order.
+##Ethereal Attire | Elegant Fashion for Every Moment Socail Media Campaign  Social Media Campaign Landing Page, Elegant Fashion for Every Moment Campaign Sign Up NoW and get 10% DISCOUNT on your FRIST Order.
 
 ### HERO BANNER CALL TO ACTION
--- hero banner button link to New Zesty Moments Stories Campaign Landing Page --
+-- hero banner button link to New Elegant Fashion for Every Moment Campaign Landing Page --
 
 ## Desgin 
 <ul>
